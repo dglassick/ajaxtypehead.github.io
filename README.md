@@ -1,0 +1,1 @@
+# ajaxtypehead.github.io
